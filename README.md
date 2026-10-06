@@ -1,3 +1,2 @@
 Ameya Patkar
-13
 
